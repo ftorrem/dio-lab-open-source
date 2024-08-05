@@ -1,6 +1,6 @@
 # Olá! Sou Fernando Torre Moreira (ftorrem) 😀
 
-💥Sou Engenheiro de Produção, Especialista em Gestão de Projetos, com experiência na industria da mineração.
+💥Sou Engenheiro de Produção, Especialista em Gestão de Projetos, com mais de 20 anos de experiência na industria da mineração.
 Conecte-se comigo ➡️ [LinkedIn](https://www.linkedin.com/in/fernando-torre-moreira-90351226/)
 
 🚀Estou iniciando o processo de migração de área de atuação. Busco atuar no setor de tecnologia.
